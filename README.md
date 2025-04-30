@@ -217,7 +217,7 @@ View Member Details: By clicking "View Details" on any member's profile card.
 
 Prakeerth Gollapati - RA2211027010194
 
-Tathagata Bhattacharyajee - RA2211027010202
+Tathagata Bhattacherjee - RA2211027010202
 
 
 
